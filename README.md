@@ -1,2 +1,2 @@
-# Hi-humans
+# Hi-people
 Green Destination
